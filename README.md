@@ -3,8 +3,7 @@
 
 <img src="https://u.cubeupload.com/Dagasi/ace86sinttulo2026032200.png" width="330">
 
-
-⏔ㅤㅤ**⏔⏔⏔ ꒰ ♡ ꒱ ⏔⏔⏔**ㅤㅤ⏔
+ㅤ
 
  c * h ㅤ. ㅤw2i ㅤ. ㅤafk ㅤ.ㅤ online ㅤ/ ㅤw. **m**oots
 
