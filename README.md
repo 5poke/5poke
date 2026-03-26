@@ -6,7 +6,7 @@
 **꒰ᩧׁׅ  ㅤ 𓏼**ㅤ <img src="https://u.cubeupload.com/Dagasi/95sinttulo2026032614.png" width="240">ㅤㅤ 𓏫**⑅⃝** ۪۪۫ *♡*
 
 ${\color{#323745}\textsf{𔓕}}$
-[@*a*ta*b*ook](https://clonesfies.atabook.org)  ${\color{#FEC5C9}\textsf{ 𖹭 }}$ㅤ[@*s*traw*p*age](https://sweetiezam.straw.page) ${\color{#F5E0E1}\textsf{ 𖹭 }}$ [@*r*entry](https://rentry.co/parf7es) ${\color{#ECFFFD}\textsf{ 𖹭 }}$ [@*t*witter](https://x.com/manepaws) ${\color{#323745}\textsf{𔓕}}$
+[@*a*ta*b*ook](https://clonefies.atabook.org)  ${\color{#FEC5C9}\textsf{ 𖹭 }}$ㅤ[@*s*traw*p*age](https://sweetiezam.straw.page) ${\color{#F5E0E1}\textsf{ 𖹭 }}$ [@*r*entry](https://rentry.co/parf7es) ${\color{#ECFFFD}\textsf{ 𖹭 }}$ [@*t*witter](https://x.com/manepaws) ${\color{#323745}\textsf{𔓕}}$
 ㅤ
 
 <img src="https://u.cubeupload.com/Dagasi/93sinttulo2026032614.png" width="576">
