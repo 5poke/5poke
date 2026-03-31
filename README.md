@@ -24,4 +24,4 @@ ${\color{#323745}\textsf{ credit to all the artists of the drawings shown here}}
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://u.cubeupload.com/Dagasi/fdc98sinttulo2026032616.png" width="300">
 
-${\color{#323745}\textsf{ CRY ABOUT IT NEILL LMAOOOO @NostalgicBurger}}$
+${\color{#323745}\textsf{ CRY ABOUT IT CHERISEEE LMAOOOO @NostalgicBurger}}$
