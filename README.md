@@ -5,4 +5,4 @@
 
 ㅤ.ㅤㅤ***♡***ㅤㅤ<img src="https://u.cubeupload.com/Dagasi/Untitled141202604110.png" width="270">
 
-[ 𝕒ta𝕓ook ](https://judesharp.atabook.org) ㅤㅤㅤㅤㅤㅤㅤㅤ[ 𝕣entry ](https://rentry.co/spwoek) 
+[ 𝕒ta𝕓ook ](https://boosfev.atabook.org) ㅤㅤㅤㅤㅤㅤㅤㅤ[ 𝕣entry ](https://rentry.co/spwoek) 
