@@ -1,3 +1,8 @@
-[<div align="center">
+<div align="center">
 
-wipㅤㅤㅤㅤ **꒰ ᐢ ◞‸◟ᐢ꒱**ㅤㅤㅤㅤ[𝕠ld . 𝕝ayout](https://github.com/QueerbaitTrio) 
+<img src="https://u.cubeupload.com/Dagasi/a60Untitled136202604110.png" width="320">
+
+
+ㅤ.ㅤㅤ***♡***ㅤㅤ<img src="https://u.cubeupload.com/Dagasi/Untitled141202604110.png" width="270">
+
+[ 𝕒ta𝕓ook ](https://judesharp.atabook.org) ㅤㅤㅤㅤㅤㅤㅤㅤ[ 𝕣entry ](https://rentry.co/spwoek) 
