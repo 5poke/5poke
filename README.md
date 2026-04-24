@@ -1,4 +1,4 @@
-<!-- why are you trying to copy my repository? ︶. -->
+<!-- why are you trying to copy me? (っ˘ڡ˘ς)-->
 
 <div align="center">
  
@@ -7,7 +7,9 @@
  
 <img src="https://u.cubeupload.com/Dagasi/NewProject10A883E431.gif" width="450">
 
-<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒 ***f***eiㅤㅤ ${\textsf{\color{#EEC1CA}8𝘸7}}$ㅤㅤ<img src="https://u.cubeupload.com/Dagasi/tumblr23167956816f09.gif" width="26">ㅤ ${\textsf{\color{#F3EEEE}𝗻𝗼}}$ ${\textsf{\color{#F2D7CB}DNI}}$
+<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒 ***f***eiㅤㅤ ${\textsf{\color{#EEC1CA}8𝘸7}}$ㅤㅤ<img src="https://u.cubeupload.com/Dagasi/tumblr23167956816f09.gif" width="20">ㅤ ${\textsf{\color{#F3EEEE}𝗻𝗼}}$ ${\textsf{\color{#F2D7CB}DNI}}$ㅤㅤ𖹭ㅤ ۫ ׅ ${\textsf{\color{#F2D7CB}married}}$
+
+
 
 <img src="https://u.cubeupload.com/Dagasi/tumblr4e62b5526a8e1c.gif" width="30">
 
@@ -15,3 +17,4 @@
 <img src="https://u.cubeupload.com/Dagasi/NewProject1016240A5.gif" width="200"> </a>
 
 <a href="https://pronouns.cc/childish">
+<img src="https://u.cubeupload.com/Dagasi/NewProject101C1695D.gif" width="200"> </a>
