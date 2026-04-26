@@ -7,11 +7,12 @@
  
 <img src="https://u.cubeupload.com/Dagasi/NewProject10A883E431.gif" width="450">
 
-<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒 ***f***eiㅤㅤ ${\textsf{\color{#EEC1CA}8𝘸7}}$ㅤㅤ<img src="https://u.cubeupload.com/Dagasi/tumblr23167956816f09.gif" width="23">ㅤ ${\textsf{\color{#F3EEEE}𝗻𝗼}}$ ${\textsf{\color{#F2D7CB}DNI}}$ㅤㅤ ${\textsf{\color{#F7DCE4}𖹭}}$ㅤ ۫ ׅ  ${\textsf{\color{#F3EEEE}married}}$
+<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒  ${\textsf{\color{#8b574c}𝙛ei}}$ㅤㅤ ${\textsf{\color{#EEC1CA}8𝘸7}}$ㅤㅤ<img src="https://u.cubeupload.com/Dagasi/tumblr23167956816f09.gif" width="23">ㅤ ${\textsf{\color{#F3EEEE}𝗻𝗼}}$ ${\textsf{\color{#F2D7CB}DNI}}$ㅤㅤ ${\textsf{\color{#F7DCE4}𖹭}}$ㅤ ۫ ׅ  ${\textsf{\color{#F3EEEE}married}}$
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jua&duration=1200&pause=2600&color=F7DCE4&center=true&vCenter=true&width=120&height=32&lines=30+%E2%B8%9D%E3%85%A403" alt="Typing SVG" /></a> .ㅤ<img src="https://u.cubeupload.com/Dagasi/tumblr4e62b5526a8e1c.gif" width="23">ㅤㅤ 
-${\textsf{\color{#F3EEEE}c}}$ ${\textsf{\color{#F3EEEE}+}}$ ${\textsf{\color{#F3EEEE}𝗵}}$ㅤㅤ𝗲nc *♡*ㅤ𝗰omf
+${\textsf{\color{#F2C0B9}c}}$ ${\textsf{\color{#F3EEEE}+}}$ ${\textsf{\color{#8B574C}𝗵}}$ㅤㅤ ${\textsf{\color{#F5D6D8}𝗲nc}}$ *♡*ㅤ𝗰omfㅤ︶
 
+${\textsf{\color{#EEC1CA}۶ৎ}}$ㅤ **${\textsf{\color{#EECFDC}𓎢𓎠𓎟𓎠}}$ ${\textsf{\color{#EACFCA}𓎟}}$ ${\textsf{\color{#99545A}𓎠𓎟𓎠𓎡}}$** ㅤ ${\textsf{\color{#EEC1CA}۶ৎ}}$
 
 <a href="https://wfs.atabook.org">
 <img src="https://u.cubeupload.com/Dagasi/NewProject1016240A5.gif" width="200"> </a>
