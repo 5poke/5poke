@@ -12,7 +12,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jua&duration=1200&pause=2600&color=F7DCE4&center=true&vCenter=true&width=120&height=32&lines=30+%E2%B8%9D%E3%85%A403" alt="Typing SVG" /></a> .ㅤ<img src="https://u.cubeupload.com/Dagasi/tumblr4e62b5526a8e1c.gif" width="23">ㅤㅤ 
 ${\textsf{\color{#F3EEEE}c}}$ ${\textsf{\color{#F3EEEE}+}}$ ${\textsf{\color{#F3EEEE}𝗵}}$ㅤㅤ𝗲nc *♡*ㅤ𝗰omf
 
-
+<img src="https://u.cubeupload.com/Dagasi/NewProject10486D89E.gif" width="84">ㅤㅤthank you so much! 
 
 
 <a href="https://wfs.atabook.org">
