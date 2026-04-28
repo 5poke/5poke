@@ -19,3 +19,6 @@ ${\textsf{\color{#EEC1CA}۶ৎ}}$ㅤ **${\textsf{\color{#EECFDC}𓎢𓎠𓎟𓎠
 
 <a href="https://pronouns.cc/childish">
 <img src="https://u.cubeupload.com/Dagasi/NewProject101C1695D.gif" width="200"> </a>
+
+<a href="https://rentry.co/wiwicha">
+<img src="https://u.cubeupload.com/Dagasi/NewProject107FF5F03.gif" width="200"> </a>
