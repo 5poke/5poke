@@ -6,7 +6,9 @@
  
 <img src="https://u.cubeupload.com/Dagasi/NewProject14EFCDFF2.gif" width="450">
 
-#wip
+
+<img src="https://u.cubeupload.com/Dagasi/NewProject186411B84.gif" width="70"> ᵒʳ vewn . **WIP**
+
 
 <a href="https://swagdonia.atabook.org">
 <img src="https://u.cubeupload.com/Dagasi/NewProject15Copy843F.gif" width="200"> </a>
