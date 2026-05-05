@@ -9,7 +9,9 @@
 <img src="https://u.cubeupload.com/Dagasi/NewProject14EFCDFF2.gif" width="450">
 
 
-<img src="https://u.cubeupload.com/Dagasi/NewProject186DF32D7.gif" width="80"> ᵒʳ vewn . <img src="https://u.cubeupload.com/Dagasi/NewProject16BA77497.gif" width="87">
+<img src="https://u.cubeupload.com/Dagasi/NewProject186DF32D7.gif" width="80"> ᵒʳ vewn . 
+
+**c** + **h** comf
 
 
 <a href="https://pronouns.cc/childish">
