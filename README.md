@@ -10,7 +10,7 @@
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/tiara.png" width="26">ㅤ *c* **٭** h ***c***omfㅤ۫ ׅㅤㅤ**⁸**ʷ₇ㅤㅤㅤ中**国人** ㅤ゛⌣ㅤn*o*ㅤ**DNI**
 
-take[n](https://github.com/melopics)ㅤㅤ***♡***ㅤ**3**O 𓏼 **O**3 ㅤㅤ݁ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/sword.png" width="30">ㅤ𓏏
+take[n](https://github.com/buildduo)ㅤㅤ***♡***ㅤ**3**O 𓏼 **O**3 ㅤㅤ݁ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/sword.png" width="30">ㅤ𓏏
 
 <a href="https://swagdonia.atabook.org">
 <img src="https://file.garden/aeWblX8drAn4J6VK/atabook.gif" width="200"> </a>
