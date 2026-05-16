@@ -1,5 +1,3 @@
-<!-- if you copy or fork this without permission I will give you a kiss, a GAY kiss. But I won't do that neither because I love my husband so much and I will NEVER cheat on him with a failure loser like you (yap, yap, yap) . ٭ -->
-
 <div align="center">
 
 I would like you : on top of me — baby , [**t**ying](https://tvtropes.org/pmwiki/pmwiki.php/Main/BoundAndGagged) me up
@@ -7,9 +5,11 @@ I would like you : on top of me — baby , [**t**ying](https://tvtropes.org/pmwi
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/bg4.gif" width="411">
 
-<img src="https://file.garden/aeWblX8drAn4J6VK/15.png" width="42">ㅤᵒʳ ***x***iang ⁸⁵  ㅤ ˢhe ㅤ  ๋₊ㅤㅤ⑭岁ㅤ.ㅤno 𝗗𝗡𝗜 
+<img src="https://file.garden/aeWblX8drAn4J6VK/15.png" width="42">ㅤᵒʳ ***x***iang ⁸⁵  ㅤ ˢhe ㅤ  ๋₊ㅤㅤ⑭岁ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/15.gif" width="24">ㅤno 𝗗𝗡𝗜 
 
-married to himㅤ
+8ʷ7ㅤ. ⊹ㅤㅤmarried to himㅤㅤ𓈒  °ㅤ爱，永远。
+
+˖ ⑅ . ˚
 
 ㅤㅤ<a href="https://fly.atabook.org">
 <img src="https://file.garden/aeWblX8drAn4J6VK/12.gif" width="100"> </a>
