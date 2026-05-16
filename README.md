@@ -5,3 +5,10 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Henny+Penny&letterSpacing=0.18rem&duration=2400&pause=500&color=FFF1F6&center=true&vCenter=true&width=435&lines=You're+gonna+get+that+treasure;Maybe+tasting+me%2C+Dev+%E2%99%A1" alt="Typing SVG" /></a>
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/bg4.gif" width="411">
+
+fei / xiang. pls dni if you're jinna. you're acting weird with me. 
+
+ㅤㅤ<a href="https://fly.atabook.org">
+<img src="https://file.garden/aeWblX8drAn4J6VK/12.gif" width="100"> </a>
+ㅤㅤㅤㅤ<a href="https://rentry.co/cagedie">
+<img src="https://file.garden/aeWblX8drAn4J6VK/13.gif" width="100"> </a>
