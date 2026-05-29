@@ -3,4 +3,6 @@
   
 <img src="https://file.garden/aeWblX8drAn4J6VK/bn7.gif" width="505">
 
-forever,ㅤus,ㅤtogether
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⁺ ᵒʳ 𝕩𝚒𝚊𝚗g ݂ ㅤ `♡`   ༷    ۫  ˢʰᵉ  ٜ ㅤ𝚑ᵉ
+
