@@ -9,4 +9,4 @@
 
   ꒰ 648 6w5 ⋮⠀۫⠀INFJ⠀ ݂  ₍₋︨︡ₒ₋︧︠₎⠀⠀SpSx⠀⁺⠀𝕀⠀ⓛ𝚘𝚟e⠀𝚝ʜ𝕖𝚖⠀ ༷  ꒰ᵔ.  .ᵔ꒱
 
-<img src="https://file.garden/aeWblX8drAn4J6VK/l4.gif" width="50">ㅤㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/l5.gif" width="50"> <--- Me aND MY SWEETHEART
+<img src="https://file.garden/aeWblX8drAn4J6VK/l4.gif" width="50">ㅤㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/l5.gif" width="50">
