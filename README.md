@@ -1,6 +1,6 @@
 <div align="center">
 
-**"Para fingir tu Muerte y Hacerte el Inocente para eso Si eres bueno."** las mayusculas solo en el inicio y en nombres propios pls. lmao.
+**"Para fingir tu Muerte y Hacerte el Inocente para eso Si eres bueno."** Dijiste que "no te busque" y el que me busca eres tú, ubicate Xp
   
 <a href="https://fly.atabook.org">
   <img src="https://file.garden/aeWblX8drAn4J6VK/lnk2.gif" width="180"><a/> ㅤㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/bn8.gif" width="270"> <a/>
