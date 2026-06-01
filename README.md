@@ -1,6 +1,5 @@
 <div align="center">
 
-S.oo lo q pasa es q algunas veces me siento incómodo pq trata a sus amigos de una forma q se podría decir "pareja" c.osa q yo no puse queja sobre aquello. Pq yo no qu iero arruina r su diversión p.ero s.soo n.o se, n.osw como hablmarle para q ella l.o vea v.omo un "Amiga deja de hacer eso Que no ves que Me incomodas Pelotuda" YM.E AGARRA ANSIEDAD
   
 <a href="https://fly.atabook.org">
   <img src="https://file.garden/aeWblX8drAn4J6VK/lnk2.gif" width="180"><a/> ㅤㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/bn8.gif" width="270"> <a/>
